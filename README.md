@@ -28,4 +28,4 @@ Check out my pinned repositories below 👇
 
 ## Contact
 - Telegram: @lllunaa_a
-- Email: darialozovskaa07@gmail.com
+- Email: darialozovska07@gmail.com
